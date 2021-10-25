@@ -1,0 +1,1 @@
+# transicao-pagina-cinetico-explicado
